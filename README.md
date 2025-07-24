@@ -3,7 +3,7 @@
 # Chứng minh tài chính du học Canada là một trong những yêu cầu bắt buộc và quan trọng khi bạn nộp hồ sơ xin visa du học. Đây là cách để Chính phủ Canada đánh giá liệu bạn (và gia đình) có đủ khả năng chi trả học phí, sinh hoạt và các chi phí khác trong suốt quá trình học tập tại quốc gia này hay không.
 
 # 
-
+Xem thêm: https://dichvutaichinh.vn/chung-minh-tai-chinh-du-hoc-canada.html
 # Chứng minh tài chính là gì?
 
 # Là việc bạn cung cấp các giấy tờ chứng minh bạn có đủ tiền trong ngân hàng, thu nhập ổn định hoặc tài sản đảm bảo để trang trải mọi chi phí khi du học. Mục đích là đảm bảo du học sinh không trở thành gánh nặng cho xã hội Canada trong thời gian lưu trú.
